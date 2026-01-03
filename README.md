@@ -24,3 +24,7 @@ PREMIER PRO - https://filecr.com/windows/adobe-premiere-pro-0064/?id=49862360000
 AFTER EFFECT - https://filecr.com/windows/adobe-after-effects-0038/?id=852123080000
 
 ``
+
+``
+https://drive.google.com/file/d/111j-GiVsHEKojbr-4PdgjNNm2Xj1rwix/view
+``
