@@ -2,6 +2,7 @@
 Resources
 
 `` 
+useful web for character
 https://docs.google.com/document/d/1jYugAouSdo4zpoHgz0Q3ufYOodEF75v6QGJ3lE_OG4g/edit?usp=sharing
 
 - - -
@@ -10,6 +11,7 @@ Sent via @SuperProfileForCreators
 ``
 
 ``
+links to download app
 CAPCUT -
 https://www.mediafire.com/file/n0mabu3giiv8kl4/capcut_15.5.0.apk/file
 
@@ -26,6 +28,7 @@ AFTER EFFECT - https://filecr.com/windows/adobe-after-effects-0038/?id=852123080
 ``
 
 ``
+freez character effect
 https://drive.google.com/file/d/111j-GiVsHEKojbr-4PdgjNNm2Xj1rwix/view
 ``
 
