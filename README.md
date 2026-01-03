@@ -28,3 +28,10 @@ AFTER EFFECT - https://filecr.com/windows/adobe-after-effects-0038/?id=852123080
 ``
 https://drive.google.com/file/d/111j-GiVsHEKojbr-4PdgjNNm2Xj1rwix/view
 ``
+
+
+``
+background sounds
+https://drive.google.com/drive/u/0/folders/1yL0w2Chf3qVXwPNXSiB_zlsPjUnqw-kZ?fbclid=PAT01DUAO0QcFleHRuA2FlbQIxMABzcnRjBmFwcF9pZA81NjcwNjczNDMzNTI0MjcAAaf-0G0hM7j1mFp0pR-deesv-3C90ggJE5WVZUZ7qtZ2ftzqxQP-6qFX8crNOA_aem_qTSXG7nKGu0UFGKfLdpugg
+
+``
