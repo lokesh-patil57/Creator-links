@@ -1,3 +1,3 @@
 DSA Patterns
 
-link - https://whimsical.com/lucky654/dsa-patternsKvr2pZLg5xeehCvgUGUU1U@6HYTAunKLgTVjZeanPqSAPBJTGXk2Ai3G8Ycvs4o6RRqrVR
+link - https://whimsical.com/lucky654/dsa-patterns-Kvr2pZLg5xeehCvgUGUU1U@or4CdLRbgroB6fTRGE4wV181CmeXothyoXMaSRyyR
